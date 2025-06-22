@@ -8,8 +8,6 @@
 
 - 📫 How to reach me **zakihaider444@gmail.com**
 
-- ⚡ Fun fact **When "Zaki" is unstoppable dare to stop him**
-
 
 
 <h3 align="left">Languages and Tools:</h3>
